@@ -100,7 +100,7 @@ Author: Sudowoodo
 
 ### 🏁 Author
 **Created by:** *G Pavan Kumar Reddy*  
-📧 *gudurupavanpavankumarreddy@gmail.com@gmail.com*
+📧 *gudurupavanpavankumarreddygmail.com*
 
 ---
 
